@@ -1,2 +1,5 @@
 # hello-world
 dajhbdwakjdnajdbJHKNFKvDHNKJHQAGWUWHIUJQWBFGUQAYHGBIWJBGFUAKY
+nothing important
+kill everyone
+live starving
