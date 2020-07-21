@@ -1,5 +1,6 @@
 # hello-world
-dajhbdwakjdnajdbJHKNFKvDHNKJHQAGWUWHIUJQWBFGUQAYHGBIWJBGFUAKY
+
+just another repositary
 nothing important
 kill everyone
 live starving
